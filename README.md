@@ -18,9 +18,13 @@
 
 ⬛ call me mimi/user!
 
+
 <br> 
 
 ![Image](https://github.com/user-attachments/assets/658fee85-0f94-4d2a-b1b8-4f6b8cc3c6e3)
+ts user btw
+
+------
 
 <br>  
 
@@ -41,3 +45,13 @@
 <br> 
 
 ⬛ hates: my family, life 
+
+<br> 
+
+my kin: 
+
+![Image](https://github.com/user-attachments/assets/f684201e-5088-4ee3-9bed-a3d39ce304a6)
+
+----
+<br> 
+ill rmk ts later. 
